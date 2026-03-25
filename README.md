@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-BAGA740925MVZTRR00
+BAGA740925MVZTRR00
